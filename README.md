@@ -1,1 +1,3 @@
-# .github
+# *Cultivate and Protect your Inner Peace*
+## *Discover the ancient wisdom and modern practices that will help you build an unshakeable foundation of inner peace that no external circumstance can disturb. Start your journey to calm today! Inner peace isn't something you find – it's something you cultivate and protect daily. Start with one pointer that resonates with you today, and gradually incorporate others into your life. Remember, the most powerful sanctuary you'll ever need to protect is the one within your own heart.* [More details…](https://spiritualkhazaana.com/web-stories/cultivate-and-protect-your-inner-peace/)
+## #InnerPeace #SpiritualGrowth #Mindfulness #SelfCare #PeacefulLiving #selfrealization #spiriualjourney
